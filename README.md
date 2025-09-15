@@ -24,8 +24,8 @@ Atualmente busco oportunidades para evoluir na área de TI, aplicando meu conhec
 ---
 
 ## 📫 Como me encontrar  
-- **LinkedIn:** [Seu Link Aqui]  
-- **E-mail:** [Seu E-mail Aqui]  
+- **LinkedIn:** https://www.linkedin.com/in/marcus-vinicius-antonio-ab761720a/
+- **E-mail:** marcusv750@gmail.com  
 
 ---
 
